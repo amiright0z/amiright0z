@@ -1,1 +1,1 @@
-Ni Hao, 👋
+Ni Hao
